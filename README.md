@@ -1,4 +1,4 @@
-## Hi there 👋
+## yang bener kalo mau buat web ak, 😹😹😹
 
 <!--
 **riiz-devz/Riiz-Devz** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
